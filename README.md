@@ -1,2 +1,1 @@
-hutto
-meka kari athel
+
